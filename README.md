@@ -1,2 +1,2 @@
 # resume
-My resume for internship applications 2025
+A showcase of my skills, authenticity, and creativity!
